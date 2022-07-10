@@ -8,7 +8,7 @@ I am a 20 years developer from Sweden looking for a junior developer job.
 
 - 🔭 I'm a university student that likes to do programming
 - ⚡ In my free time I read books, do programming and play video games.
-- 📫 How to reach me: Indrit#3972 on discord
+- 📫 Reach me at johan.indrit.andersson@gmail.com or Indrit#3972 on discord
 
 ---
 
