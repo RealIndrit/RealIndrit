@@ -5,7 +5,7 @@
 ### :man_technologist: &nbsp;About Me :
 
 - ⚡ In my free time I read books, do programming and play video games.
-- 📫 Reach me at johan.indrit.andersson@gmail.com or Indrit#3972 on discord
+- 📫 Reach me at externalcontact.shield824@passmail.net or realindrit on discord
 
 ---
 
